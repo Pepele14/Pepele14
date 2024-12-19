@@ -1,4 +1,4 @@
-# 🛡️ Many calls me Pepe but you should definitely call me John Pepinsky III Viscount of the city of Somewhere and Duke of Peepyland
+# 🛡️ While many refer to me as Pepe, you should undoubtedly address me as Sir John Pepinsky III, Viscount of the City of Somewhere and Duke of Peepyland.
 
 #### - ⚔️ I’m currently learning incredible things.
   
