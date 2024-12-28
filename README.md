@@ -1,10 +1,6 @@
 # 👑 Sir John Pepinsky III, Viscount of the City of Somewhere and Duke of Peepyland 
 
   
-#### ⚔️ I’m looking to collaborate on conquering the world.
-  
-#### ⚔️ I don’t seek help. Help seeks John Pepinsky III.
-  
 #### ⚔️ Ask me about whatever, just make sure to always use the most appropriate pronoun as per the list below.
 
 #### 👑 Pronouns: Your Majesty, Your Royal Highness, Your Grace, Your Excellency, My Lord, Your Honor.
